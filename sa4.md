@@ -1,3 +1,3 @@
 rima
 set
-ass ssda
+asskallluparickallssda
